@@ -11,6 +11,7 @@ FUNCTIONS
 - MAC Spoof
 - Clean Traces - Valorant - Fortnite- COD - etc....
 - Serial Checker included
+- EAC, Vanguard ect.
 
 💻 Supported Platforms 💻
 
