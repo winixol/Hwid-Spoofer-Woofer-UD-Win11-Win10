@@ -22,7 +22,6 @@ FUNCTIONS
 **https://discord.gg/E7bjWfDJA8**
 
 
-![Screenshot 2024-10-10 170050](https://github.com/user-attachments/assets/258452da-fd7d-4c32-a583-7d770b9cf5ee)
 
 FOR EDUCATIONAL PURPOSES ONLY !!!
 ©️ Spectra Copyright 2024, all rights reserved
