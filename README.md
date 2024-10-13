@@ -25,3 +25,5 @@ FUNCTIONS
 
 FOR EDUCATIONAL PURPOSES ONLY !!!
 ©️ Spectra Copyright 2024, all rights reserved
+
+![Screenshot 2024-10-10 170050](https://github.com/user-attachments/assets/16e53a59-b4d5-434a-bab4-d7abeb6b0052)
